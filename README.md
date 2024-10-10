@@ -1,5 +1,5 @@
 # 💫 About Me:
-i am Hassan, an 18 Years Old developer from Morocco, currently interested in CyberSecurity 
+I am Hassan, an 18 Years Old developer from Morocco, currently interested in CyberSecurity 
 
 
 ## 🌐 Socials:
